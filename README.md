@@ -1,5 +1,9 @@
-# music
-Stream Seven Hour Drive
+# My Music
+♪ Streaming Links Below ♪
+
+Thank you for Listening!
+
+## Seven Hour Drive - Single
 
 
 [Apple Music](https://music.apple.com/us/album/seven-hour-drive-feat-musa/1840629317?i=1840629319)
@@ -7,7 +11,3 @@ Stream Seven Hour Drive
 [Spotify](https://open.spotify.com/artist/385RdaI2gko9oNwXnupput)
 
 [BeatPort](https://www.beatport.com/release/seven-hour-drive/5399336)
-
-(If you want to support financially: Buy on BeatPort!)
-
-Thx for Listening
