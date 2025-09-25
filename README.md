@@ -7,3 +7,7 @@ Stream Seven Hour Drive
 [Spotify](https://open.spotify.com/artist/385RdaI2gko9oNwXnupput)
 
 [BeatPort](https://www.beatport.com/release/seven-hour-drive/5399336)
+
+(If you want to support financially: Buy my songs on BeatPort!)
+
+Thx for Listening
