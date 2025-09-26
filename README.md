@@ -1,7 +1,6 @@
 # My Music
 ♪ Streaming Links Below ♪
 
-Thank you for Listening!
 
 ## Seven Hour Drive - Single
 
